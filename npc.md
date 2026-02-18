@@ -1,0 +1,6 @@
+- Locandiere di Vorrath proprietario della taverna (Tana di Gratt) Gretzell, a cui manca una gamba e un braccio. Avanti con l'età per un hobgoblin. 
+- Moglie di Gretzell, Gratt Zannadura, a cui manca una gamba ed un braccio, inversi rispetto al marito. Ci manda in missione per recuperare la perla. Non gliela diamo per non metterla in pericolo e ci da le lucertole lo stesso.
+- Pescatore di Drovenn di nome Rilven, ci manda a suo nome alla locanda
+- L'ispettore delle scorte Darnic Vel, crede un sacco nei numeri, ossessionato dalle scorte. Evito che Thumn lo colpisca con un masso.
+- Lisa stalliera di Darnic Vel.
+- il ministro del commercio: Lady Seliane Dhoras, quasi colpita dalla bobina lanciata da Thumn. Fa rapporto per noi a Valmyrion, e ci manda in missione a Fennora.

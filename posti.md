@@ -1,0 +1,4 @@
+- foresta Velkyr (li ci siamo risvegliati 2° sessione), tutto sommato tranquilla (sud est)
+- villaggio Vorrath (ad est di Velkyr) villaggio con 6 case ed una locanda (Tana di Gratt) con hobgoblin ed orchi
+- Droven villaggio di pescatori, salsedine, barche ormeggiate, pescatori con pelle scura perchè stanno al sole. 20 abitazioni, taverna Il nodo salato. Hanno delle alghe essiccate con proprietà curative
+- Skeldmar villaggio inglobato nella foresta, le case sono proprio nei tronchi degli alberi. odore di resina
