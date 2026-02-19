@@ -70,3 +70,4 @@ nazioni:
 		- velo di smeraldo (quorandis) simbolo della gilda serpente su pergamena e si chiama velo di smeraldo, la gilda è un 
 			po' ambigua, alcuni la considerano un covo di mercenari senza scrupoli, altri indispensabile per la stabilità.
 		- custodi dell'abisso (valmirion) considerati eccentrici
+
