@@ -1,10 +1,10 @@
 non settimana ma sestara:
-1) Luendì = Lunor 
-2) Martedì = Solar 
-3) Mercoledì = Terran 
-4) Giovedì = Aquor 
-5) Venerdì = Pyron 
-6) Sabato = Aether
+1. Luendì = Lunor 
+2. Martedì = Solar 
+3. Mercoledì = Terran 
+4. Giovedì = Aquor 
+5. Venerdì = Pyron 
+6. Sabato = Aether
 
 
 continente:
