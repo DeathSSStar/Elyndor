@@ -32,4 +32,5 @@ Qui trovate riassunti, personaggi, luoghi e informazioni sul mondo.
 ---
 
 > Ultimo aggiornamento: {{ site.time | date: "%d %B %Y" }}
+
 > Archivista ufficiale del party™
