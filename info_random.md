@@ -25,3 +25,4 @@
 
 - draghi sono estinti da millenni
 
+- La milizia di Valmyrion sono i combattenti che 20 o 30 anni fa combattevano in prima linea per Alderia.

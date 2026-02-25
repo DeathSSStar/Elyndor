@@ -11,6 +11,8 @@
 	- stregone,
 	- uomo serpente (yuan ti),
 	- fissato con le candele,  ne ha uno zaino pieno. Solo le candele esistono.
+	- maestro dei richiami per attirare i cervi
+	- lui squoia i cervi e fa le razioni
 
 - Sylwe Elun'ara:
 	- stregone,
@@ -34,6 +36,7 @@
 	- vegano
     - molto amico di Sinon
     - ha iniziato a mettere in dubbio la religione
+	- mi ha dato delle radici molto saporite
 
 - Sinon Ionia:
 	- elfa dei boschi,

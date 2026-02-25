@@ -6,6 +6,9 @@ non settimana ma sestara:
 5. Venerdì = Pyron 
 6. Sabato = Aether
 
+soli:
+- Sole maggiore: Kaelorn
+- Sole minore: Seryth
 
 continente:
 - nome: Valderyn

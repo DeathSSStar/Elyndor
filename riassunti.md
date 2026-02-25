@@ -102,12 +102,29 @@ Mook si sfoga che è triste perchè non è giusto che lui non combatta contro gl
 Ripartiamo. Quando fa sera in lontananza sentiamo il vociare dei mercanti e il rumore delle macine.
 L'ispettore delle scorte Darnic Vel, crede un sacco nei numeri, ossessionato dalle scorte, ci chiede se abbiamo qualcosa da dichiarare. Ci da il benvenuto a Myrrendale. Ci manda dalla stalliera Lisa per le lucertole.
 Chiacchierando ci dice che a Fennora iniziano a sparire persone. Le raccontiamo del dinosauro zombie e la spaventiamo.
-Un massiccio nano con le mani infarinate ci accoglie. da un coso strano di metallo a Thumn che gli da una mini scossa piacevole solo a lui. La prova su di noi, si scarica e la lancia via, colpendo quasi il ministro del commercio: Lady Simmianedoras. Si avvicina con due guardie della sua scorta. Gli dice che potrebbe essere più utile di quello che pensa. 
+Un massiccio nano con le mani infarinate ci accoglie. da un coso strano di metallo a Thumn che gli da una mini scossa piacevole solo a lui. La prova su di noi, si scarica e la lancia via, colpendo quasi il ministro del commercio: Lady Seliane Dhoras. Si avvicina con due guardie della sua scorta. Gli dice che potrebbe essere più utile di quello che pensa e che la mattina si sarebbe ricaricata.
 Ci riconosce e dice che sono passati 3 mesi, ci davano per morti.
 Le diciamo un po' di ciò che sappiamo.
-L'arcimago Elorin di Quorandis potrebbe saperne qualcosa della perla e potrebbe aiutarci.
+L'arcimago Elorin di Quorandis potrebbe saperne qualcosa della perla e potrebbe aiutarci. Non dobbiamo parlarne a nessuno.
 Conferma le voci sulle sparizioni a Fennora, e ci manda li in missione.
 Lei farà rapporto a Valmyrion per conto nostro.
+
+---
+
+25/02
+
+Andiamo al mercato. Fanno spese, ripartiamo subito dopo, salutando Lisa.
+Nella foresta di fennora c'è fauna. C'è anche una collina e si vede un ingresso, forse una cava di lavoro.
+Cacciammo e con una notevole performance di Colenn arrivano 6 cervi. Mook mi da delle radici molto saporite.
+L'indomani ci avviciniamo a Fennora, ci sono campi immensi di grano e ci saranno 60 o 70 abitanti. Locanda principale covone dorato, ed un templio dedicato alla dea della fertilità Arvheia, La Madre Feconda.
+Vediamo una figura di spicco nel villaggio, Rendal Voreth ex soldato della milizia di Valmyrion. Marius lo saluta perchè lo conosce. Ci presentiamo e ci manda alla locanda, dovendo chiedere di Maherra. Si dice che da qualche parte ci sia una nuova banda di banditi, ci mostra il cartello WANTED del capo della banda Roderick Vance soprannominato Roderick il Rosso. Sembra che abbia ucciso qualcuno ma che nessun corpo sia stato ritrovato. Le sparizioni sono avvenute da circa una decina di giorni qui a Fennora.
+Arriva Rendal. Ci dice che lui non crede sia Roderick a rapire ed uccidere persone. Anzi secondo lui sono le spie di Drakenvold perchè non è modus operandi di Roderick, perchè lascia sempre qualche traccia, invece ora.
+Noi gli raccontiamo ciò che abbiamo passato, anche le somiglianze con ciò che è accaduto a sud
+Dice che è sparito prima un contadino, lasciando gli attrezzi nel campo mentre lavorava, senza tracce, difficile stabilire l'ora. Dice anche le la cosa strana è che nessuno ha sentito nulla, quindi è troppo strano.
+Dice anche che hanno trovato il covo di Roderick, vicino alla cava abbandonata, sulla collina che abbiamo visto.
+Andiammo sul luogo della sparizione e non c'è magia. Quindi andiamo al covo di Roderick.
+Troviamo 5 tende, un paio di scarpe rotte, armi, uno scrigno. Sembra essere abbandonato e c'è odore di marcio
+Troviamo anche una porta rocciosa con il simbolo che ha Thumn. Thumn entra subito e troviamo un uomo rannicchiato, confuso e spaventato e smagrito. Con lui 6 uova molto grosse, schiuse. Non abbiamo idea di cosa siano, troppo grandi per qualunque animale conosciamo. 4 uova si sono schiuse 14 giorni fa, 2 invece 4 giorni fa.
 
 ---
 
