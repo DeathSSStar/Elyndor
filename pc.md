@@ -2,7 +2,7 @@
 	- costrutto, 
 	- luce blu al posto degli occhi,
 	- 2.5 m di altezza,
-	- 400 anni,
+	- 400 anni che è sveglio,
 	- Ha un tatuaggio con una clessidra sopra normale e sotto rotta con delle radici,
 	- si è risvegliato nella foresta Tyravel
     - gli piace prendere scossette e lanciare cose alle persone
