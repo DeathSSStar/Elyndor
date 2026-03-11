@@ -6,6 +6,8 @@
 	- Ha un tatuaggio con una clessidra sopra normale e sotto rotta con delle radici,
 	- si è risvegliato nella foresta Tyravel
     - gli piace prendere scossette e lanciare cose alle persone
+	- il tatuaggio l'abbiamo visto nella grotta dei banditi, su una porta dentro la cui stanza c'erano 3 uova schiuse.
+	- legge una lingua di cui non conosciamo il nome. Infatti legge le pergamene che troviamo nella grotta dei banditi vicino Fennora.
 
 - Colenn Kimball:
 	- stregone,

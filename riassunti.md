@@ -128,3 +128,18 @@ Troviamo anche una porta rocciosa con il simbolo che ha Thumn. Thumn entra subit
 
 ---
 
+10/03
+
+il tizio rannicchiato farfuglia cose, ed ha una scimitarra nelle vicinanze. Ha una bandana nera, suggerendo che sia un bandito. Entro nella sua mente ed è in completa confusione, vedo diversi volti che non ho mai visto, fino a vedere uno che ho visto, Roderick ed urla, disperazione. Gli faccio comando per farlo calmare, gli vedo gli occhi rossi, come se non li chiudesse da tempo ed è anche denutrito. Dice "no no potrebbe essere qui, potrebbe tornare, no no!" e ri rannicchia di nuovo.
+Peetro nei suoi pensieri, vedo un carro assaltato, un bottino, felicità e gioia. Poi però qualcosa che trema.
+Mook all'improvviso sente una vibrazione.
+Thumn trova un medaglione con una stella a più punte, con un cerchio più in alto. è lo stesso medaglione che stava sul manifesto di Roderick. Il bandito appena vede il medaglione prova a scappare.
+Sentiamo di nuovo la terra tremare, ed esce un vermone molto lungo che si mangia il bandito. FIGHT
+vinto fight. Il verme peserà tra gli 800-1000 Kg 
+Esplorando il resto della caverna troviamo una testa, il resto del corpo tranciato di netto. Era uno dei volti che avevo visto nella mente del bandito.
+Più avanti troviamo un forziere chiuso. Marius rompe il luccheto e dentro troviamo tante pergamene. Le riesce a leggere solo Thumn, in una lingua di cui non conosce il nome. Alcune hanno il solito simbolo che ha Thumn.
+La prima parla di un contenimento e di una porta quasi indistruttibile.
+LEVEL UP!
+decidiamo di tornare indietro verso Fennora.
+Incontriamo un altro verme, stavolta più grande e gli escono 3 serpenti dalla bocca grandi quanto un braccio palestrato, più lungo però.
+Il verme pesa tra 15-20 Tonnellate.

@@ -26,3 +26,6 @@
 - draghi sono estinti da millenni
 
 - La milizia di Valmyrion sono i combattenti che 20 o 30 anni fa combattevano in prima linea per Alderia.
+
+- pergamene trovate nella caverna dei banditi:
+    - una parla di un contenimento e una porta indistruttibile

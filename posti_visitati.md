@@ -3,4 +3,6 @@
 - Droven villaggio di pescatori, salsedine, barche ormeggiate, pescatori con pelle scura perchè stanno al sole. 20 abitazioni, taverna Il nodo salato. Hanno delle alghe essiccate con proprietà curative
 - Skeldmar villaggio inglobato nella foresta, le case sono proprio nei tronchi degli alberi. odore di resina
 - Nella foresta di Fennora c'è fauna. C'è anche una collina e si vede un ingresso, forse una cava di lavoro.
+- Myrrendale: enormi campi di grano, grande centro commerciale con vari granai e la sede del ministero del commercio.
 - Fennora, ci sono campi immensi di grano e ci saranno 60 o 70 abitanti. Locanda principale covone dorato, ed un templio dedicato alla dea della fertilità Arvheia, La Madre Feconda
+- grotta dei banditi vicino Fennora, qui troviamo 6 uova schiuse e la stanza con il simbolo di Thum. Troviamo un forziere contenente varie pergamene che riesce a leggere Thumn.
