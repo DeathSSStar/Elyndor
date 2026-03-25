@@ -29,3 +29,8 @@
 
 - pergamene trovate nella caverna dei banditi:
     - una parla di un contenimento e una porta indistruttibile
+- pergamene che sa solo Thumn:
+    - Il custode sepolto: nomignolo costantemente ripetuto, senza descrizione. (ha una visione quando legge questo: una mano calda che lo accarezza, che lo plasma fino alla forma attuale)
+    - la pergamena potrebbe avere tra 6k o 10k anni. è un meccanismo di difesa per mantenere l'equilibro. Se viene sconvolto l'ordine naturale, questo infrange il sigillo del custode che libera i suoi punitori. I punitori sono stati creati per distruggere e riformare. Non si fermeranno fino alla distruzione totale, stolti saranno coloro che si mettono contro il custode, poichè lui incarna la morte.
+    - per creare la camera c'è bisogno del sacrificio di più di 100 individui.
+    - ultime pergamene altri 3 nomi, i guardiani, coloro che assieme al loro padrone non dovranno mai rivedere la luce, poichè c'è un piano per imprigionarli. I nomi: Abasylh, Asorah e Orgrah. Imprigionati i 3 lui sarà più debole, ma se anche 1 si liberasse, lui acquisterebbe più potere.

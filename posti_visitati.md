@@ -5,4 +5,5 @@
 - Nella foresta di Fennora c'è fauna. C'è anche una collina e si vede un ingresso, forse una cava di lavoro.
 - Myrrendale: enormi campi di grano, grande centro commerciale con vari granai e la sede del ministero del commercio.
 - Fennora, ci sono campi immensi di grano e ci saranno 60 o 70 abitanti. Locanda principale covone dorato, ed un templio dedicato alla dea della fertilità Arvheia, La Madre Feconda
+- locanda di Fennora: Il covone dorato.
 - grotta dei banditi vicino Fennora, qui troviamo 6 uova schiuse e la stanza con il simbolo di Thum. Troviamo un forziere contenente varie pergamene che riesce a leggere Thumn.

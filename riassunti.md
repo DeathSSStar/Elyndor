@@ -117,7 +117,7 @@ Andiamo al mercato. Fanno spese, ripartiamo subito dopo, salutando Lisa.
 Nella foresta di fennora c'è fauna. C'è anche una collina e si vede un ingresso, forse una cava di lavoro.
 Cacciammo e con una notevole performance di Colenn arrivano 6 cervi. Mook mi da delle radici molto saporite.
 L'indomani ci avviciniamo a Fennora, ci sono campi immensi di grano e ci saranno 60 o 70 abitanti. Locanda principale covone dorato, ed un templio dedicato alla dea della fertilità Arvheia, La Madre Feconda.
-Vediamo una figura di spicco nel villaggio, Rendal Voreth ex soldato della milizia di Valmyrion. Marius lo saluta perchè lo conosce. Ci presentiamo e ci manda alla locanda, dovendo chiedere di Maherra. Si dice che da qualche parte ci sia una nuova banda di banditi, ci mostra il cartello WANTED del capo della banda Roderick Vance soprannominato Roderick il Rosso. Sembra che abbia ucciso qualcuno ma che nessun corpo sia stato ritrovato. Le sparizioni sono avvenute da circa una decina di giorni qui a Fennora.
+Vediamo una figura di spicco nel villaggio, Rendal Voreth ex soldato della milizia di Valmyrion. Marius lo saluta perchè lo conosce. Ci presentiamo e ci manda alla locanda (il covone dorato), dovendo chiedere di Maherra. Si dice che da qualche parte ci sia una nuova banda di banditi, ci mostra il cartello WANTED del capo della banda Roderick Vance soprannominato Roderick il Rosso. Sembra che abbia ucciso qualcuno ma che nessun corpo sia stato ritrovato. Le sparizioni sono avvenute da circa una decina di giorni qui a Fennora.
 Arriva Rendal. Ci dice che lui non crede sia Roderick a rapire ed uccidere persone. Anzi secondo lui sono le spie di Drakenvold perchè non è modus operandi di Roderick, perchè lascia sempre qualche traccia, invece ora.
 Noi gli raccontiamo ciò che abbiamo passato, anche le somiglianze con ciò che è accaduto a sud
 Dice che è sparito prima un contadino, lasciando gli attrezzi nel campo mentre lavorava, senza tracce, difficile stabilire l'ora. Dice anche le la cosa strana è che nessuno ha sentito nulla, quindi è troppo strano.
@@ -143,3 +143,17 @@ LEVEL UP!
 decidiamo di tornare indietro verso Fennora.
 Incontriamo un altro verme, stavolta più grande e gli escono 3 serpenti dalla bocca grandi quanto un braccio palestrato, più lungo però.
 Il verme pesa tra 15-20 Tonnellate.
+
+---
+
+25/03 (su google meet)
+
+Sconfiggiamo il vermone dopo un bel po'. Sono sfinito, ho usato molto "potere magico".
+Si avvicina qualcuno su di un cavallo da guerra. è dell'esercito di Alderia. è un generale. è Rendal Voreth! Ha il simbolo di Aelyrion.
+Ha sentito di mostri così grossi solo dalle leggende sui draghi.
+Dice che a Fennora non hanno le forze sufficienti per combattere mostri del genere.
+Torniamo a Fennora.
+Gli suggerisco di tenere i contadini fermi un giorno di lavoro per evitare che facciano rumori ripetuti, dato che sospetto che i rumori ripetuti attirino i vermi dato che non hanno la vista. Gli porgo il medaglione di Roderick per mettere su una festicciola per la cattura del bandito in modo da evitare che i contadini lavorino, per pensare ad un piano d'azione.
+Ci dormiamo su, mentre Thumn legge le pergamene.
+
+---

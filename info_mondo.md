@@ -74,3 +74,5 @@ nazioni:
 			po' ambigua, alcuni la considerano un covo di mercenari senza scrupoli, altri indispensabile per la stabilità.
 		- custodi dell'abisso (valmirion) considerati eccentrici
 
+Divinità:
+- Aelyrion: divinità maggiore, il fulgido architetto. La più importante tra le divinità maggiori. Il suo dominio è la luce, l'ordine cosmico.

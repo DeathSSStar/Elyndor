@@ -5,5 +5,6 @@
 - Lisa stalliera di Darnic Vel. la spaventiamo con le nostre avventure (streghe, dinosauro zombie). Lei ci dice delle spazioni a Fennora. Le dico di non parlare dei fatti di Fennora.
 - il ministro del commercio: Lady Seliane Dhoras, quasi colpita dalla bobina lanciata da Thumn. Fa rapporto per noi a Valmyrion, e ci manda in missione a Fennora. Ci paga il conto.
 - Rendal Voreth ex soldato della milizia di Valmyrion. Attualmente è congedato ed è il borgomastro di Fennora. Ci parla anche lui delle sparizioni. Noi gli raccontiamo ciò che abbiamo passato, anche le somiglianze con ciò che è accaduto a sud. Ci paga il conto.
+Dopo che abbiamo sconfitto il verme enorme arriva con un'armatura da generale.
 - Maherra, locandiera di Fennora.
 - Roderick Vance ricercato, capo di una banda di banditi. troviamo il suo medaglione nella grotta, vicino alle uova, quindi probabilmente è morto.
