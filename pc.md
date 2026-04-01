@@ -15,6 +15,9 @@
 	- fissato con le candele,  ne ha uno zaino pieno. Solo le candele esistono.
 	- maestro dei richiami per attirare i cervi
 	- lui squoia i cervi e fa le razioni
+	- fa sesso solo per procreare (bacchettone)
+	- candele grigio gesso: +2 CA, +2 tiri colpire, +2 danni incantesimi
+	- candele venose verde: +6 hp ogni 2 round
 
 - Sylwe Elun'ara:
 	- stregone,
@@ -39,6 +42,7 @@
     - molto amico di Sinon
     - ha iniziato a mettere in dubbio la religione
 	- mi ha dato delle radici molto saporite
+	- fa del gran sesso
 
 - Sinon Ionia:
 	- elfa dei boschi,

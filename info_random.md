@@ -27,6 +27,8 @@
 
 - La milizia di Valmyrion sono i combattenti che 20 o 30 anni fa combattevano in prima linea per Alderia.
 
+- gilda mia: lama dorata
+
 - pergamene trovate nella caverna dei banditi:
     - una parla di un contenimento e una porta indistruttibile
 - pergamene che sa solo Thumn:

@@ -29,7 +29,7 @@ Esce un angelo che perde delle piume, ci fa una benedizione e da egli esce una c
 senza far rumore, entra nel vuoto e non sveniamo.
 Ci svegliamo il giorno dopo con la foresta e gli animali che sti stanno riprendendo. La maledizione sembra essersi spezzata o compiuta.
 dovremo scoprirlo noi. 
-Il coso che è uscito è uno dei guardiani della morte. Il suo nome è Abasyll
+Il coso che è uscito è uno dei guardiani della morte. Il suo nome è Abasylh
 
 ---
 
@@ -157,3 +157,31 @@ Gli suggerisco di tenere i contadini fermi un giorno di lavoro per evitare che f
 Ci dormiamo su, mentre Thumn legge le pergamene.
 
 ---
+
+Chiedere se vedo Thumn leggere. Chiedere pezzi di uovo dei vermi per spell synaptic Static, e uovo di gallina
+ 
+01/04 Thumn T-pose
+Ci svegliamo e chiedo a Colenn alcuni pezzi delle uova dei vermi. Esploriamo la sessualità dei membri del party a tavola.
+Decidiamo di restare qui per i vermi e contattiamo la ministra del commercio tramite miei messaggi per avvisarla e richiedere aiuto:
+
+S: Sono Santiago Elmago Siamo a Fennora le sparizioni sono causate da 6 bestie vermi giganteschi ne abbiamo uccisi 2 serve immediatamente esercito noi iniziamo saluti
+
+M: non so chi tu sia santiago elmago
+ma parlando di Fennora mi stai dicendo che tu o qualcuno avete ucciso delle bestie
+quale esercito
+
+S: Siamo il gruppo di Bronbog che lei ha inviato a Fennora. massimo 25 parole per messaggio comunicazione interrotta a quale esercito
+
+M: non s'è capito nulla perchè pensava a cazzate
+
+S: Pensi solo al messaggio da riferire perchè non ho capito nulla. Sintetizzi. Noi difendiamo il villaggio attendendo rinforzi. Cordiali Saluti Santiago. 
+
+M: Dimmi dove si interrompe e fammi continuare, mobilitare l'esercito in un era come questa con Drakenvold ...
+
+La appendiamo perchè 3 slot dio schifo ed andiamo da Rendal. Abbiamo 2 giorni per fare cose.
+
+Addestriamo Goffredo, Verdone e Rudolf a cercare i vermi.
+Andiamo quindi a caccia di vermi. Io faccio rumore con taumaturgia.
+Sentiamo un verso mostruoso provenire da dietro di noi, tipo T-Rex. Sentiamo il terreno sotto di noi sollevarsi, vediamo altre due scie, che si avvicinano a 12 metri davanti a noi.
+L'urlo viene da lontano, almeno mezzo km.
+Li distraiamo e scappiamo ma ci inseguono, non riescono a raggiungerci ma ci stanno dietro.

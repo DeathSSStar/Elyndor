@@ -70,9 +70,19 @@ nazioni:
 	- gilde:
 		- lama dorata (valmirion myrrendale) gilda più ufficiale, amata dal popolo e spesso chiamata dal consiglio
 		- martello cremisi (kalvessan) molto orgogliosi e diretti, poco politici
-		- velo di smeraldo (quorandis) simbolo della gilda serpente su pergamena e si chiama velo di smeraldo, la gilda è un 
-			po' ambigua, alcuni la considerano un covo di mercenari senza scrupoli, altri indispensabile per la stabilità.
-		- custodi dell'abisso (valmirion) considerati eccentrici
+		- velo di smeraldo (quorandis) simbolo della gilda serpente su pergamena e si chiama velo di smeraldo, la gilda è un po' ambigua, alcuni la considerano un covo di mercenari senza scrupoli, altri indispensabile per la stabilità.
+		- custodi dell'abisso (valmirion Torrask) considerati eccentrici
 
 Divinità:
 - Aelyrion: divinità maggiore, il fulgido architetto. La più importante tra le divinità maggiori. Il suo dominio è la luce, l'ordine cosmico.
+
+Tempo:
+	- anno: 360 giorni
+	- mesi: 10 di 6 sestare e 36 giorni
+	- stagioni:
+		marcate ma non estreme
+		2 da 3 mesi e 2 da 2 mesi:
+		- primavera: rinascita 2 mesi | ritorno
+		- estate: crescita 3 mesi | abbondanza
+		- autunno: declino 2 mesi | secca
+		- inverno: quiete 3 mesi | respiro
