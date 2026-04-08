@@ -161,6 +161,7 @@ Ci dormiamo su, mentre Thumn legge le pergamene.
 Chiedere se vedo Thumn leggere. Chiedere pezzi di uovo dei vermi per spell synaptic Static, e uovo di gallina
  
 01/04 Thumn T-pose
+
 Ci svegliamo e chiedo a Colenn alcuni pezzi delle uova dei vermi. Esploriamo la sessualità dei membri del party a tavola.
 Decidiamo di restare qui per i vermi e contattiamo la ministra del commercio tramite miei messaggi per avvisarla e richiedere aiuto:
 
@@ -185,3 +186,22 @@ Andiamo quindi a caccia di vermi. Io faccio rumore con taumaturgia.
 Sentiamo un verso mostruoso provenire da dietro di noi, tipo T-Rex. Sentiamo il terreno sotto di noi sollevarsi, vediamo altre due scie, che si avvicinano a 12 metri davanti a noi.
 L'urlo viene da lontano, almeno mezzo km.
 Li distraiamo e scappiamo ma ci inseguono, non riescono a raggiungerci ma ci stanno dietro.
+
+---
+
+08/04
+
+mentre scappiamo, decidiamo di separarci e ri-congiungerci subito dopo per provare a farli scontrare. 2 si fanno male, sentiamo un lamento e vediamo del sangue. Continuiamo un po' e poi ci fermiamo con sylve che attira il verme.
+fight
+Verdone muore durante il fight.
+Ci sono uova dentro i vermi.
+Mook prega la dea Silvara per fare rinascita su Verdone (cosa che a lui non piace fare)
+una voce nel vento: "Figlio, Cosa cerca il tuo volere?"
+Mook: "Vita per questo essere, il mio amico verdone"
+voce: "Ha sempre un prezzo, sei pronto?"
+Mook: "Si, è morto con me, per me, deve tornare da me"
+dell'energia esce dal corpo di Mook e va da Verdone.
+
+---
+
+Ci sono uova dentro i vermi
