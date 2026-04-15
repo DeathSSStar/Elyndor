@@ -201,7 +201,27 @@ Mook: "Vita per questo essere, il mio amico verdone"
 voce: "Ha sempre un prezzo, sei pronto?"
 Mook: "Si, è morto con me, per me, deve tornare da me"
 dell'energia esce dal corpo di Mook e va da Verdone.
+Verdone è vivo.
 
 ---
 
-Ci sono uova dentro i vermi
+Ci sono uova dentro i vermi. dobbiamo ricordarci dell'altro verme che abbiamo ucciso. 
+
+15/04
+
+i vermi hanno sangue rosso e giallo (A MAGGICA). hanno delle uova al loro interno quelli grandi. le uova che contengono sono molto più piccole di quelle che avevamo trovato nella grotta, tipo uovo di struzzo. di queste uova solo una conteneva un simil-feto di verme ma le altre no.
+i vermi emanano aura di abiurazione.
+coleen prende le uova e ripartiamo.
+arriviamo all'altro cadavere e prendiamo le uova anche da questo. Intanto Thumn sente di nuovo il ruggitone e lui e Marius vanno in quella direzione (noialtri non volevamo perchè siamo stanchi).
+Il mostrone che fa il verso causa l'interruzione del collegamento tra me e Marius, a 1.5 Km da lui. Trovano il vermone. Il comportamento è strano: non è aggressivo ed è molto agitato.
+Noi torniamo al villaggio, mentre Thumn insegue il vermone.
+Marius ci dice che a 80 metri dal verme non funge la magia. (io quindi non so la verità che è 1.5 Km).
+Sta venendo verso il villaggio. Il verso lo sentiamo tutti, anche Thumn che lo sta inseguendo (a piedi).
+Ritroviamo il vermone squartato, e sono fuoriusciti vari esseri che camminano e si sono sparpagliati. Il verme dentro è vuoto, come se se lo fossero mangiati. Più seguiamo le tracce più si fanno grandi.
+Arriviamo al villaggio, e proseguiamo verso il granaio.
+Marius è andato a cercare Rendal.
+Troviamo l'inverso di geodude, dentro il granaio. Thumn lo attira fuori e va in ira.
+
+---
+
+Non dimentichiamoci che Oh sta da solo lontano.
