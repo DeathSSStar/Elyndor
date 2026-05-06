@@ -225,3 +225,10 @@ Troviamo l'inverso di geodude, dentro il granaio. Thumn lo attira fuori e va in 
 ---
 
 Non dimentichiamoci che Oh sta da solo lontano.
+
+06/05
+
+Nel granaio c'è un bovino morto. Picchiamo l'inverso di geodude. ha fatto un urlo  che mi ha insordito. Thumn va a riprendere oh. Dormiamo.
+Thumn ci racconta delle pergamene.
+Sylve va a trovare Rendal e fa capire al tizio del granaio che è morto il mulo, quindi Rendal gli deve spiegare cose. Il tizio del granaio è sconvolto.
+Le spiega che i geodude inversi non hanno ne orecchie, ne occhi. hanno muscoli molto sviluppati quindi corrono parecchio. hanno una strana membrana sopra la testa ma non sa a cosa serve. Nello stomaco c'è un'unica enorme sacca, come se non avessero bisogno di tanto cibo o non avessero bisogno di disfarsene. Non hanno genitali. 
