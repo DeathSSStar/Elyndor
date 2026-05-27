@@ -54,6 +54,7 @@ nazioni:
 		- quorandis (universitaria) città natale di Santiago
 		- Tharrosk – Città portuale
 		- Quorandis – Città universitaria
+			- l'edificio più grande è la biblioteca, si chiama Archivium Eternis.
 		- Kalvessan – Fortezza di frontiera
 		- Myrrendale – Villaggio agricolo, cuore del commercio di Alderia. Centro di raccolta grano, poi spedito alla capitale.
 			- locanda: ruota del grano, enorme, si possono affittare sale private. Si mangia bene, 4.5 stelle.

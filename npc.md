@@ -9,4 +9,4 @@ La contatto durante la missione dei vermi a Fennora e la avviso che difenderemo 
 Dopo che abbiamo sconfitto il verme enorme arriva con un'armatura da generale. Sylwe ha fatto incazzare Rendal facendo sgamare la morte del mulo al tizio del granaio.
 - Mahera Tenn, locandiera di Fennora. molto vigorosa non bisogna contraddirla.
 - Roderick Vance ricercato, capo di una banda di banditi. troviamo il suo medaglione nella grotta, vicino alle uova, quindi probabilmente è morto.
-- Zharren arcimago di Quorandis, amico del capitano Rannik di Quorandis. Ha inviato Sylwe ad aiutarmi.
+- Zharren mago di Quorandis, amico del capitano Rannik di Quorandis. Ha inviato Sylwe ad aiutarmi.

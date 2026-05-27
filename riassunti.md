@@ -231,4 +231,25 @@ Non dimentichiamoci che Oh sta da solo lontano.
 Nel granaio c'è un bovino morto. Picchiamo l'inverso di geodude. ha fatto un urlo  che mi ha insordito. Thumn va a riprendere oh. Dormiamo.
 Thumn ci racconta delle pergamene.
 Sylve va a trovare Rendal e fa capire al tizio del granaio che è morto il mulo, quindi Rendal gli deve spiegare cose. Il tizio del granaio è sconvolto.
-Le spiega che i geodude inversi non hanno ne orecchie, ne occhi. hanno muscoli molto sviluppati quindi corrono parecchio. hanno una strana membrana sopra la testa ma non sa a cosa serve. Nello stomaco c'è un'unica enorme sacca, come se non avessero bisogno di tanto cibo o non avessero bisogno di disfarsene. Non hanno genitali. 
+Le spiega che i geodude inversi non hanno ne orecchie, ne occhi. hanno muscoli molto sviluppati quindi corrono parecchio. hanno una strana membrana sopra la testa ma non sa a cosa serve. Nello stomaco c'è un'unica piccola sacca, come se non avessero bisogno di tanto cibo o non avessero bisogno di disfarsene, era vuoto lo stomaco, stranamente perchè ha mangiato un po del bovino morto. Non hanno genitali. Forse potrebbe scoprire di più con un esemplare vivo.
+
+---
+
+Addio Tensing (Mook)
+
+27/05
+
+Contatto Il mio caro amico Rannik per dire a Zharren, il mago di quorandis amico di Sylwe, che abbiamo un artefatto che gli potrebbe interessare e di contattare Sylwe.
+Troviamo un messaggio di Mook: torno al mio villaggio per un po'
+Andiamo verso il cadavere del vermone da dove sono usciti i geodude. Seguiamo nuove tracce, anche queste crescono via via, e poi correva. Gli viene un brivido lungo la schiena ed indica verso la foresta.
+Non c'è un singolo rumore provenire dalla foresta. Troviamo animali mangiati in parte, un cervo ed un lupo. Il cervo manca la parte posteriore, del lupo la parte centrale (di ciò che manca mancano anche le ossa).
+Mentre analizziamo i resti, sentiamo lo stesso tipo urlo/verso della sera prima. Mentre ci avviciamo notiamo che c'è una roba in lontananza che sta sgranocchiando qualcosa.
+Ha mangiato un orso con 3 morsi. Ed è andato via. Sentiamo poi un rumore di respiro forte. Vedo una cresta sulla bocca alzarsi e questa specie di cervello pulsante, che pulsa per qualche secondo e poi si chiude. subito dopo il ruggito e salta verso di me.
+Fight. Me la vedo brutta, mi salva Colenn con un colpo coda da 2 danni.
+Durante il combattimento ha lasciato dietro di se una sacca. da questa nasce un mini-geodude inverso, che poi Thumn mette in bocca. e dato che sente sapore lo deglutisce e rutta.
+Quando Sylwe ha castato scudo di ghiaccio l'hanno evitata.
+Capiamo che si riproducono mangiando e poi vomitando/partorendo la loro prole. Sylwe si rende conto che hanno età diverse, quindi io mi convinco della mia ipotesi che si riproducono così.
+
+---
+
+Dobbiamo capire se possono riprodursi una volta sola o più volte
