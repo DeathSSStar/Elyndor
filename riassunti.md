@@ -253,3 +253,13 @@ Capiamo che si riproducono mangiando e poi vomitando/partorendo la loro prole. S
 ---
 
 Dobbiamo capire se possono riprodursi una volta sola o più volte
+
+Sylwe in T-pose
+
+SESSIONE 03/06
+
+Torniamo al vermone e troviamo altre 2 tracce che vanno verso sud. Le seguiamo. dopo un'ora si separano, una verso ovest e l'altra verso sud. Disegno un cazzo col fuoco sull'erba dove si separano ed andiamo verso ovest. Arriviamo fino alla scogliera e le tracce entrano in una cava. lasciamo le lucertole fuori ed entriamo. troviamo un bivio a 3. andiamo nella terza e ci sono resti di animali putrefatti. Nella prima ci sono altri resti, sembrano le pelli degli esseri che abbiamo visto prima, come se avessero fatto una muta. nella seconda niente. quindi torniamo verso l'uscita. Usciamo e tre creature stanno sorvolando l'area. Sono molto più grosse di quelli che abbiamo visto in precedenza e fanno fischi molto acuti. Hanno un bozzolo nella parte posteriore. Ne tiro giù uno e prende danni mentre cade ed inizia il fight. Fanno un soffio di fuoco di  4.5 metri. Riusciamo a cavarcela per un pelo con Marius e Coleen a terra. Ne catturiamo uno. Riposiamo nella caverna a turni.
+
+---
+
+Dobbiamo decidere se andare da quelli a sud e capire come portare il mostro catturato da Rendal

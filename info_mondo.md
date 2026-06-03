@@ -13,6 +13,7 @@ soli:
 continente:
 - nome: Valderyn
 - lunghezza nord-sud: 3500 Km
+- oceano: Molkar
 
 nazioni:
 - DRAKENVOLD:
@@ -35,6 +36,8 @@ nazioni:
 		- Drovenn villaggio di pescatori, salsedine, barche ormeggiate, pescatori con pelle scura perchè stanno al sole. 20 abitazioni, taverna Il nodo salato. Hanno delle alghe essiccate con proprietà curative.
 		- Ulthric
 		- Mournhollow
+	- fiumi:
+		- Trathen da Morghast fino a giù
 	
 - ALDERIA:
 	- nord
@@ -73,6 +76,9 @@ nazioni:
 		- martello cremisi (kalvessan) molto orgogliosi e diretti, poco politici
 		- velo di smeraldo (quorandis) simbolo della gilda serpente su pergamena e si chiama velo di smeraldo, la gilda è un po' ambigua, alcuni la considerano un covo di mercenari senza scrupoli, altri indispensabile per la stabilità.
 		- custodi dell'abisso (valmirion Torrask) considerati eccentrici
+	- fiumi:
+		Lethyr: fiume maggiore, parte dal lago fino a Kalvessan
+	- lago Lythariel
 
 Divinità:
 - Aelyrion: divinità maggiore, il fulgido architetto. La più importante tra le divinità maggiori. Il suo dominio è la luce, l'ordine cosmico.
