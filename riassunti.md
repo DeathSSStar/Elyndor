@@ -263,3 +263,17 @@ Torniamo al vermone e troviamo altre 2 tracce che vanno verso sud. Le seguiamo. 
 ---
 
 Dobbiamo decidere se andare da quelli a sud e capire come portare il mostro catturato da Rendal
+
+
+SESSIONE 17/06
+
+Thumn T-Pose
+
+Uccidiamo il mostro, dato che non possiamo trasportarlo senza Thumn. Coleen Prova ad estrarre la protuberanza dal mostro morto ma rompe la spada di Sylwe sciogliendone parte tipo come se fosse lava.
+Seguiamo le tracce verso sud, arriviamo alla foresta nei pressi di Skeldmar e notiamo che la foresta è un po distrutta. e gli animali hanno dei morsi umani. Non abbiamo sentito alcun suono di animale.
+Le impronte si moltiplicano. E ad un certo punto ci accorgiamo che siamo dentro un'impronta molto grande (forse t rex). Sentiamo un albero che cade davanti a noi. verso sud si leva uno sciame di corvi. Scappiamo verso nord. Ci riposiamo oltre il fiume.
+Siamo quasi a 12 ore di cammino da Fennora e ci sono diversi movimenti vicino a noi. Sentiamo verso di leone. Fight con le leonesse. Eravamo in difficoltà, ma arriva un leone maschio con molte cicatrici che richiama le leonesse rimanenti e si allontanano.
+
+---
+
+Ci fermiamo a far mangiare le lucertole, ed io casto Rary's telepathic Bond con rituale per parlare con le lucertole. facciamo tipo chat di gruppo
