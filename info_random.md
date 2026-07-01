@@ -38,3 +38,5 @@
     - ultime pergamene altri 3 nomi, i guardiani, coloro che assieme al loro padrone non dovranno mai rivedere la luce, poichè c'è un piano per imprigionarli. I nomi: Abasylh, Asorah e Orgrah. Imprigionati i 3 lui sarà più debole, ma se anche 1 si liberasse, lui acquisterebbe più potere.
 
 - i vermi avevano sangue rosso e giallo (A MAGGICA). hanno delle uova al loro interno quelli grandi. le uova che contengono sono molto più piccole di quelle che avevamo trovato nella grotta, tipo uovo di struzzo. di queste uova solo una contiene un simil-feto di verme ma le altre no.
+
+- Rendal ci parla di alcune navi aeree a Thorrask. le navi aeree vengono costruite con tramite un artefatto, che è un materiale molto raro e molto difficile da estrarre. Questo materiale non si consuma nel tempo nelle navi che hanno trovato, mentre se vengono riprodotte, questo si consuma.

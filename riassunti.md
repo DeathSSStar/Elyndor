@@ -277,3 +277,26 @@ Siamo quasi a 12 ore di cammino da Fennora e ci sono diversi movimenti vicino a 
 ---
 
 Ci fermiamo a far mangiare le lucertole, ed io casto Rary's telepathic Bond con rituale per parlare con le lucertole. facciamo tipo chat di gruppo
+
+---
+
+SESSIONE 01/07
+
+parliamo con le lucertole, a me Goffredo dice che era spaventato. ermenegildo vuole correre. Oh vuole allenarsi. Rudolf è stupidino e vuole giocare.
+Dicono che la carne dei vermi puzza ed emana qualcosa di pericoloso che quindi per istinto non riescono a mangiarla.
+le lucertole verranno allenate da Oh al combattimento.
+Arriviamo a Fennora.
+Riferiamo tutto a Rendal e discutiamo del da farsi, io propongo di avvisare Drakenvold mentre Rendal pensava di schierare le navi volanti.
+Ci dice di passare da Oswyck per rifornirci. che forgiano qualunque cosa, possiamo portare qualunque materiale che ce lo forgiano.
+Le lucertole vengono allenate da Oh, poi riposano. Noi mangiamo e dormiamo.
+Ci svegliamo la mattina e troviamo le lucertole che si allenano.
+Partiamo per andare a Valmyrion con tappa a Mirrandale e Oswyck.
+Cerchiamo la bag of holding a Myrrendale ed li al mercato troviamo un mercante che ha un "buco portatile" in vendita a 4000 mo. Thumn da un pugno al mercante che non voleva farci uno sconto. Marius lo cura, ma poi arriva la ministra del commercio che ci sorprende mentre stavamo "minacciando" il mercante. A sua volta, la ministra ci minaccia di arrestarci, giustamente.
+Decidiamo di andare altrove a parlarle dell'accaduto.
+Dice che non possiamo attraversare il confine "a cazzo". ci da 2500 mo come ricompensa per ciò che abbiamo fatto, ed altre 1000 per portare il cadavere a Valmyrion. Dico a Rendal di conservare il cadavere e prendere pezzi del vermone che dobbiamo portarlo a Valmyrion.
+Proviamo a mettere un pollo dentro al buco, ma Marius l'ha lanciato e poi è ri-uscito con il collo spezzato. misuro con una corda, è 3 metri. Controlliamo dopo un ora e il pollo gertrude è morto, quindi dopo un po' finisce l'aria. Controlliamo la carne il giorno dopo e resta nello stato in cui era, non si è decomposta.
+Arriviamo a Fennora.
+
+---
+
+Dobbiamo prendere il cadavere del mostro e se li ha presi anche pezzi del vermone

@@ -10,3 +10,4 @@ Dopo che abbiamo sconfitto il verme enorme arriva con un'armatura da generale. S
 - Mahera Tenn, locandiera di Fennora. molto vigorosa non bisogna contraddirla.
 - Roderick Vance ricercato, capo di una banda di banditi. troviamo il suo medaglione nella grotta, vicino alle uova, quindi probabilmente è morto.
 - Zharren mago di Quorandis, amico del capitano Rannik di Quorandis. Ha inviato Sylwe ad aiutarmi.
+- Perrin Ramirossi: mercante che abbiamo picchiato a Myrrendale 

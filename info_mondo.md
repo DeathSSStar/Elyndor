@@ -55,7 +55,8 @@ nazioni:
 	- città:
 		- capitale: Valmyrion
 		- quorandis (universitaria) città natale di Santiago
-		- Tharrosk – Città portuale
+		- Thorrask – Città portuale:
+			- si vocifera di un cantiere navale aereo
 		- Quorandis – Città universitaria
 			- l'edificio più grande è la biblioteca, si chiama Archivium Eternis.
 		- Kalvessan – Fortezza di frontiera
