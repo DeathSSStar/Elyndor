@@ -40,3 +40,7 @@
 - i vermi avevano sangue rosso e giallo (A MAGGICA). hanno delle uova al loro interno quelli grandi. le uova che contengono sono molto più piccole di quelle che avevamo trovato nella grotta, tipo uovo di struzzo. di queste uova solo una contiene un simil-feto di verme ma le altre no.
 
 - Rendal ci parla di alcune navi aeree a Thorrask. le navi aeree vengono costruite con tramite un artefatto, che è un materiale molto raro e molto difficile da estrarre. Questo materiale non si consuma nel tempo nelle navi che hanno trovato, mentre se vengono riprodotte, questo si consuma.
+
+- Veira la forgia eterna, divinità.
+
+- Starite, minerale famoso molto raro scoperto da un 100 anni. usato come fonte di propulsione delle navi.

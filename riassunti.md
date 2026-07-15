@@ -300,3 +300,24 @@ Arriviamo a Fennora.
 ---
 
 Dobbiamo prendere il cadavere del mostro e se li ha presi anche pezzi del vermone
+
+---
+
+SESSIONE 15/07
+
+Rendal ci da pezzi del cadavere del mostro ma non trova il vermone.
+Thumn da un sasso a Rendal come paga. Partiamo per Oswyck. Per arrivare usiamo tutte le razioni, stiamo senza niente.
+Andiamo alla bottega "la grande forgia".
+Thumn da un pugno al nano, Durgan mentre lui gli da una martellata. il figlio del vecchio proprietario che ha interagito con Thumn.
+Ci mostra la lama più costosa
+ci consiglia di parlare con Edrick Halden, il funzionario a capo del villaggio.
+Su ognuna delle armi c'è un piccolo simbolo con un incudine, con un impugnatura della spada ed una fenice. é il simbolo di Veira, anche chiamata la forgia eterna, una divinità.
+ci mostra anche la starite.
+Ci dice che Thumn è composto di un materiale che non esiste qui.
+Ci dirigiamo alle miniere per trovare Edrick. Ci prende subito a lavorare, ci da 2 monete d'oro a testa per un giorno e parte del ricavato.
+Picconando io trovo qualcosa di marroncino. trovo qualcosa di simile ad una sfera diametro 30 cm marroncina, come se avesse scaglie; perfettamente tonda con delle iscrizioni sopra.
+Thumn invece prende a pugni una parete e trova oricalco.
+
+---
+
+Coleen ha chiamato i picconatori per estrarre la sfera che ho già nascosto nel buco. quindi ora stiamo inguaiati.
