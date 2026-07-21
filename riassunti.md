@@ -332,3 +332,4 @@ mangiamo e dormiamo.
 La mattina diamo il materiale a Dugran per farci fare una spada. Dice che se gli viene male vale 1000 mo, se gli viene un capolavoro vale 19000mo.
 Andiamo a liberare il tunnel. Io mi trasformo in una talpa gigante e scavo. Scavo 9 metri e sento dell'acqua in lontananza. Mi accorgo che è pericolante e non faccio in tempo a dirlo che crolla tutto e cadiamo giu.
 Entriamo in una zona un cui sembrano esserci degli scalini non naturali. Thumn cade in acqua e viene trascinato dalla corrente. Poi viene sputato fuori da un coccodrillo gigante e si fighta.
+Sentiamo qualcos'altro che si sta muovendo lentamente, tipo dei piccoli tamburi battuti molto velocemente a crescere.
