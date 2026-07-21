@@ -320,4 +320,15 @@ Thumn invece prende a pugni una parete e trova oricalco.
 
 ---
 
-Coleen ha chiamato i picconatori per estrarre la sfera che ho già nascosto nel buco. quindi ora stiamo inguaiati.
+SESSIONE 21/07
+
+Thumn chiede ad un minatore cos'è e gli dice che è oricalco. Il minatore è M.E.N.A. Minatori Esperti Naninci Associati. Thumn estrae 7 Kg e poi altri 10 Kg di oricalco.
+Dopo due ore riempiamo il carrello di pietre ma all'uscita ci sgama Edrick Halden.
+Gli altri si accordano per ricevere il 30% dell'oricalco ma devono fare un lavoro, liberare un tunnel.
+Le incisioni dicono Riparare. La sfera si apre e si forma una specie di conchiglia con una specie di golem, un cuccioletto. Tutto ai lati ha degli attrezzi, ago e filo, attrezzi per riparazioni essenziali, di prima mano.
+C'è un'altra iscrizione Sassca. Thumn dice che potrebbe essere il suo nome.
+Ci chiede di scoprire le potenzialità di questo artefatto, e ribadisce che è di sua proprietà.
+mangiamo e dormiamo.
+La mattina diamo il materiale a Dugran per farci fare una spada. Dice che se gli viene male vale 1000 mo, se gli viene un capolavoro vale 19000mo.
+Andiamo a liberare il tunnel. Io mi trasformo in una talpa gigante e scavo. Scavo 9 metri e sento dell'acqua in lontananza. Mi accorgo che è pericolante e non faccio in tempo a dirlo che crolla tutto e cadiamo giu.
+Entriamo in una zona un cui sembrano esserci degli scalini non naturali. Thumn cade in acqua e viene trascinato dalla corrente. Poi viene sputato fuori da un coccodrillo gigante e si fighta.

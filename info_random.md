@@ -44,3 +44,8 @@
 - Veira la forgia eterna, divinità.
 
 - Starite, minerale famoso molto raro scoperto da un 100 anni. usato come fonte di propulsione delle navi.
+
+
+- Cose che Sassca può aggiustare: 
+    - giacchettino do Elrick
+    - 

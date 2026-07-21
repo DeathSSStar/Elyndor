@@ -7,3 +7,5 @@
 - Fennora, ci sono campi immensi di grano e ci saranno 60 o 70 abitanti. Locanda principale covone dorato, ed un templio dedicato alla dea della fertilità Arvheia, La Madre Feconda
 - locanda di Fennora: Il covone dorato.
 - grotta dei banditi vicino Fennora, qui troviamo 6 uova schiuse e la stanza con il simbolo di Thum. Troviamo un forziere contenente varie pergamene che riesce a leggere Thumn.
+- La grande forgia: armeria di Oswyck. Thumn in passato ha interagito con il proprietario, che lo ha messo in sesto ed ha indagato sul materiale di cui è fatto.
+- miniere di Oswyck. Ci lavorano i MENA Minatori Esperti Naninci Associati.
