@@ -330,6 +330,25 @@ C'è un'altra iscrizione Sassca. Thumn dice che potrebbe essere il suo nome.
 Ci chiede di scoprire le potenzialità di questo artefatto, e ribadisce che è di sua proprietà.
 mangiamo e dormiamo.
 La mattina diamo il materiale a Dugran per farci fare una spada. Dice che se gli viene male vale 1000 mo, se gli viene un capolavoro vale 19000mo.
-Andiamo a liberare il tunnel. Io mi trasformo in una talpa gigante e scavo. Scavo 9 metri e sento dell'acqua in lontananza. Mi accorgo che è pericolante e non faccio in tempo a dirlo che crolla tutto e cadiamo giu.
+Andiamo a liberare il tunnel con 12 nani. Io mi trasformo in una talpa gigante e scavo. Scavo 9 metri e sento dell'acqua in lontananza. Mi accorgo che è pericolante e non faccio in tempo a dirlo che crolla tutto e cadiamo giu.
 Entriamo in una zona un cui sembrano esserci degli scalini non naturali. Thumn cade in acqua e viene trascinato dalla corrente. Poi viene sputato fuori da un coccodrillo gigante e si fighta.
 Sentiamo qualcos'altro che si sta muovendo lentamente, tipo dei piccoli tamburi battuti molto velocemente a crescere.
+
+---
+
+SESSIONE 28/07
+
+FIGHT! mi polimorfo again in una scimmia gigante ma stavolta non ci entro e mi faccio male da solo e ritorno normale. FINE FIGHT
+Thumn durante il fight con molta fatica è riuscito ad addestrare il coccodrillone, ma torna da noi sul coccodrillo ed io vedo solo il coccordillo e lo uccido con dardo di fuoco. Lui ci rimane male. Do fuoco al cadavere dello scimmione perchè ho paura di contrariare Thumn.
+Coleen viene quasi picchiato da Thumn perchè voleva prendere le alghe dal cadavere del coccordillo e rischia di essere buttato in acqua. 
+Anche i nani dicono che la caverna non sembra naturale.
+Vediamo questo canyon cominciare ad espandersi davanti a noi. Vediamo degli spuntoni apparire dalla nebbia in cui non vediamo la fine. Non vediamo neanche il soffitto, poichè la zona è molto umida tant'è che ci sono nuvole. vediamo anche un isola in mezzo a questa nebbia e c'è un ponte un po' distante da noi. Dobbiamo attraversare una zona boschiva per arrivare a tale ponte. I nani dicono non ci saremmo mai aspettati tutto questo.
+All'improvviso sentiamo uno squittio molto forse, per tutto il canyon. Sto robo volante con un becco molto lungo, di una creatura che non abbiamo mai visto in vita nostra. Ha delle ali lunghissime, sembrano quasi piatte, non ci sono piume.
+Sembrano esserci delle luci fisse, nel cielo ci sono 3 luci oltre a vari fulmini e ciò mi sembra strano.
+Thumn si avvia nella foresta. Noi nolenti lo seguiamo. Non sembrano esserci animali di piccola taglia. Poi cominciamo a sentire un tonfo pesante.
+Incontriamo una specie di brontosauro intento a mangiare alberi. Anche uno stegosauro. Mentre torniamo indietro Sylve si accorge che un triceratopo ci sta osservando.
+Arrivati indietro troviamo i nani che stanno finendo un accampamento provvisorio. Noto che i nani sono molto dediti al loro lavoro, non si scoraggiano e continuano imperterriti.
+Scopriamo che Thumn ha la capacità di percepire anche mentre sta riposando, quindi dormiamo tutti.
+Dopo circa 3 ore sente come il rimuore di foglie che si muovono tra le tende.
+
+---
