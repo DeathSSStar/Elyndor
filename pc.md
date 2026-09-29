@@ -9,6 +9,7 @@
 	- il tatuaggio l'abbiamo visto nella grotta dei banditi, su una porta dentro la cui stanza c'erano 3 uova schiuse.
 	- legge una lingua di cui non conosciamo il nome. Infatti legge le pergamene che troviamo nella grotta dei banditi vicino Fennora.
 	- ho ucciso il coccodrillone che aveva addestrato perchè non ho visto Thumn e l'ho ucciso perchè avevo paura e mi dispiace. ci è rimasto male.
+	- Thumn sa volare
 
 - Colenn Kimball:
 	- stregone,
@@ -20,11 +21,13 @@
 	- candele grigio gesso: +2 CA, +2 tiri colpire, +2 danni incantesimi
 	- candele venose verde: +6 hp ogni 2 round
 	- vorrebbe lo trasformassi in un T-Rex
+	- ha ucciso 3 nani che ci accompagnavano, non li vedeva ma è diventato un Dwarf Slayer
 
 - Sylwe Elun'ara:
 	- stregone,
 	- elfo oscuro,
 	- scappata dal sud, era una schiava. Mi ha salvato a Quorandis e siamo partiti insieme.
+	- è rimasta sfregiata sul braccio dalle piante
 
 - Marius:
 	- paladino guerriero anche famoso, umano.

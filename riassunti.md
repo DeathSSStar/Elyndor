@@ -352,3 +352,19 @@ Scopriamo che Thumn ha la capacità di percepire anche mentre sta riposando, qui
 Dopo circa 3 ore sente come il rimuore di foglie che si muovono tra le tende.
 
 ---
+
+SESSIONE 29/09
+
+Thumn sente i rumori e va a vedere. Ci sono un paio di nani a terra, dilaniati. Un altro viene divorato e si sentono le ossa rompersi. La creatura è composta da 3 fiori con una bocca centrali.
+FIGHT
+Coleen ha ucciso 3 nani con la palla di fuoco (non li vedeva erano in tenda), Sylve è rimasta sfregiata dall'acido.
+6 nani sono morti in totale. decidamo di andare verso l'isola, oltre il ponte. dopo una mezz'ora arriviamo al ponte.
+Arrivati a metà ponte due botte forti che ci fa quasi cadere. poi i tiranti del ponte si sfilacciano.
+Una specie di T-Rex ci insegue, molto velocemente e il ponte alla fine cade. solo io non riesco ad aggrapparmi ma mi polymorfo in un aquila gigante e mi salvo.
+Vedo un enorme animale morto, impilato da due pezzi di roccia acuminati, due lo hanno forato, uno in petto e l'altro all'inizio della coda.
+Farsi un giro dell'isola potrebbe volerci alcune ore.
+Ci sono degli scalini sull'isola, abbastanza rovinati, quindi segno di attività umana.
+I cristalli sono Amarantite, Elissite, Talassite, Sangue di Elirion, Vaelkrite.
+In 3 giorni costruiamo il campo base più due torri di avvistamento. i nani lavorano senza sosta. abbiamo un sistema di detonazione a distanza per l'esplorazione della cava.
+Thumn sa volare.
+Trasformo Coleen in un'aquila gigante e ci fa da tassista per andare a caccia. in forma aquila recupera 10 conigli nel buco, torna umano e cerchiamo altre robe di più grosse.

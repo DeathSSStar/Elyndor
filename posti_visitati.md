@@ -9,3 +9,4 @@
 - grotta dei banditi vicino Fennora, qui troviamo 6 uova schiuse e la stanza con il simbolo di Thum. Troviamo un forziere contenente varie pergamene che riesce a leggere Thumn.
 - La grande forgia: armeria di Oswyck. Thumn in passato ha interagito con il proprietario, che lo ha messo in sesto ed ha indagato sul materiale di cui è fatto.
 - miniere di Oswyck. Ci lavorano i MENA Minatori Esperti Naninci Associati.
+- isola "fluttuante". abbiamo fatto un accampamento con i nani superstiti.
