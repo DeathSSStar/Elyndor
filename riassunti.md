@@ -368,3 +368,28 @@ I cristalli sono Amarantite, Elissite, Talassite, Sangue di Elirion, Vaelkrite.
 In 3 giorni costruiamo il campo base più due torri di avvistamento. i nani lavorano senza sosta. abbiamo un sistema di detonazione a distanza per l'esplorazione della cava.
 Thumn sa volare.
 Trasformo Coleen in un'aquila gigante e ci fa da tassista per andare a caccia. in forma aquila recupera 10 conigli nel buco, torna umano e cerchiamo altre robe di più grosse.
+
+---
+
+SESSIONE 06/10
+
+Gli alberi, i più piccoli, hanno circa 10 metri di diametro. All'interno della foresta sono addirittura più grossi.
+Marius ci fa perdere ma, io credo che l'abbia fatto a posta, per farci tornare indietro per evitare di arrabbiarci.
+Decidiamo di tornare indietro. 
+vedo una creatura arancione che cammina verso di noi. Sta annusando spesso, come se stesse cercando qualcosa. è alto 15 metri.
+Coleen in forma aquila torna e ci fa sgamare. Però poi ci salva riuscendo a prendere sia me che Sylve.
+Otteniamo 20 razioni + ossa per il brodo da dare ai nani.
+Entriamo nella caverna, l'aria è più fresca all'interna.
+Quello che vediamo è già stato scavato, non sembra per niente naturale. Come se fossero stati impiantati nella zona perchè non si mischiano tra tipi diversi e sono di troppe tipologie diverse.
+La cosa strana di questa zona è che è tutto sconosciuto, tranne i cristalli, che sappiamo riconoscerli. Ciò è strano.
+I cristalli illuminano la grotta, che dovrebbe essere buia.
+Thumn procede solo, si infila nei buchi e trova delle uova, scadute. Poi torna e sentiamo che puzza di morte, le uova sono tutte marce. Ma in realtà esce una creatura semi-umanoide, semi scheletrica, con dei lembi di pelle semi attaccati. Di per se lo sviluppo è stato o bloccato o continuato forzatamente. Ha mascella, 4 braccia e 2 zampe. Si agita a terra. Tira uno squittio che risuona in tutta la caverna. I cristalli si illuminano al suono di questa creatura.
+Arrivano delle creature in modo molto silenzioso, alti 2 metri e 40, 4 braccia forzutissime, con parti ossee scoperte. Non Hanno occhi. Non danno la sensazione di essere vivi. Ci ricordano una creatura che abbiamo già incontrato.
+Thumn gentilmente gli restituisce il piccolo, e poi viene annusato da uno di loro. Thumn ricambia anche se non può annusare.
+FIGHT
+Coleen tira una fireball e ci fa precipitare per una 90ina di metri.
+mentre cadiamo mi trasformo in un aquila gigante ma non vedo niente, abbusco e ricado. Alla fine ci salviamo con passo velato tranne Marius e Thumn che si schiantano.
+Marius non muore ma è a terra e Thumn invece ancora in piedi.
+Thumn però sfonda il terreno, e cadiamo per altri 6 metri.
+
+LVL 10!

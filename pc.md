@@ -35,6 +35,7 @@
 	- incute timore ai nemici ma è scherzoso con gli amici,
 	- gilda martello cremisi,
 	- ha imparato il linguaggio goblin con mia sorella
+	- stava per rompere l'ascia con un cristallo (io gliel'avevo detto ma non si è fidato)
 
 - Mook:
 	- chierico della luce

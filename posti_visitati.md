@@ -10,3 +10,4 @@
 - La grande forgia: armeria di Oswyck. Thumn in passato ha interagito con il proprietario, che lo ha messo in sesto ed ha indagato sul materiale di cui è fatto.
 - miniere di Oswyck. Ci lavorano i MENA Minatori Esperti Naninci Associati.
 - isola "fluttuante". abbiamo fatto un accampamento con i nani superstiti.
+- caverna sull'isola "fluttuante": piena di cristalli. Ci sono delle uova che puzzano di marcio ma ne esce una creatura che ne mangia.
