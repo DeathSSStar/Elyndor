@@ -393,3 +393,28 @@ Marius non muore ma è a terra e Thumn invece ancora in piedi.
 Thumn però sfonda il terreno, e cadiamo per altri 6 metri.
 
 LVL 10!
+
+---
+
+SESSIONE 13/10
+
+Arriviamo in quella che sembra essere una miniera, con leghe di metallo che non abbiamo mai visto, stessa cosa per i cristalli, questi non li abbiamo mai visti. Questi illuminano la caverna.
+L'aria è umida e pesante.
+Mando un messaggio ai nani, dicendogli di far esplodere l'entrata.
+Troviamo carrelli pieni di roccia, ma hanno tipo la muffa, non vengono spostati da tempo.
+Ci sono delle lampade ad olio accese e sono cariche.
+c'è anche un bivio sui binari, cosa che non abbiamo mai visto.
+Vediamo dei nani albini con dei simboli strani su di loro. Sembra che stiano lavorando.
+I loro occhi sono completamente bianchi.
+Gli sondo la mente e sento il silenzio assoluto.
+Coleen controlla la magia e vede un unico colore: il giallo
+Nel frattempo gli altri fanno correre un carrello sui binari per sfondare una porta, uccidendo un nano.
+Nella stanza aprerta ci sono 4 gabbie, con le sbarre molto spesse. Ancorate direttamente alla pietra. Ci sono dei sistemi di carrucole e contrappesi per sollevare pesanti travi. Ci sono creature bipedi, sembrano gigantesche lucertole predatrici, ma la muscolatura e gli artigli ci fanno pensare che siano pericolose. C'è odore di carne, escrementi e ferro ossidato. Ci sono anche tavoli da lavoro con vari strumenti, tipo da scienziato pazzo (noi non capiamo) tra cui pinze, cinghie di cuoio. Le gabbie sono numerate: C01, C02, C03, C04.
+Ci sta una gabbia gigante in fondo con proprio blocchi di pietra rinforzate. All'interno non vediamo niente. è stata progettata per contenere qualcosa di molto più grande e pericolosa. qui la scritta è C05 ma ci sono delle placche che indicano altro. toglie tutte le placche che partono da A09, ma poi ci sono BIO X01, BIO A09.
+Torniamo indietro e andiamo verso sud, troviamo un altra stanza con un sacco di pergamene, odore di cera e metallo. Ci sono delle specie di registri, rotoli di pergamena. Alcuni documenti sono molto fragili. Altri sembrano più recenti. Al centro c'è un tavolo da lavoro con mappe anche, schemi e tavole con disegni di cui non capiamo niente. C'è una grafia molto precisa. Su una parete ci stanno dei codici e numeri, altri sono contrassegnati da simboli che non riconosciamo.
+Io esamino la mappa, coleen le pergamene. la prima è una gialla (vecchia). L'anno riportato giorno 8, mese 9 anno 2136. per oggi è giorno 27 mese 7 2792. quelle più recenti cambia la grafia. L'ultimo foglio si ferma a ieri.
+Proseguiamo e prendiamo cristalli qua e la. Vediamo dei cadaveri di nani, diversi da quelli di prima. Poi sentiamo una voce in lingua sconosciuta che li fa rialzare e poi dice in comune che vivi o morti devono rimettersi a lavoro. Poco dopo ci sgama e dice "Bene bene abbiamo ospiti! Noryel non mi aveva informato. Chi siete? e cosa ci fate qui?". Gli diciamo che siamo caduti qui e allora il tizio dice che ha bisogno di altri lavoratori.
+
+Cristalli presi fino ad ora: verde, viola, azzuro, blu
+
+---

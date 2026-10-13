@@ -2,7 +2,7 @@
     - Abiurazione (Abjuration): Viola
     - Evocazione (Conjuration): Verde
     - Divinazione (Divination): Azzurro
-    - Incantesimo (Enchantment): Giallo
+    - Ammaliamento (Enchantment): Giallo
     - Illusione (Illusion): Blu
     - Necromanzia (Necromancy): Nero
     - Trasmutazione (Transmutation): Arancione
