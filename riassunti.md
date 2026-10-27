@@ -418,3 +418,18 @@ Proseguiamo e prendiamo cristalli qua e la. Vediamo dei cadaveri di nani, divers
 Cristalli presi fino ad ora: verde, viola, azzuro, blu
 
 ---
+
+SESSIONE PERSA
+
+---
+
+SESSIONE 27/10
+
+Mi risveglio nella stanza con Coleen, chiusi dentro. Mi viene ad aprire Marius.
+Ah è un dinosauro, nuovo amico di Thumn.
+Troviamo dei cristalli strani, che non c'erano prima, di vari colori.
+Poi troviamo l'ascensore ma Marius lo rompe. Funzionava prima.
+Andiamo dove sta il portale, Ah è agitato ed inizia a ringhiare e si mimetizza.
+Thumn vede i cristalli variopinti come nuotare nella roccia, mentre noi siamo nascosti nell'oscurità di Marius.
+Marius lancia una pietra per attirarli.
+Esce l'allosauro di cristallo dal terreno. ha una perla gigante ed un iscrizione sul petto BIOX-01
