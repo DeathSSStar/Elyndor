@@ -433,3 +433,29 @@ Andiamo dove sta il portale, Ah è agitato ed inizia a ringhiare e si mimetizza.
 Thumn vede i cristalli variopinti come nuotare nella roccia, mentre noi siamo nascosti nell'oscurità di Marius.
 Marius lancia una pietra per attirarli.
 Esce l'allosauro di cristallo dal terreno. ha una perla gigante ed un iscrizione sul petto BIOX-01
+
+
+SESSIONE 10/11
+
+FIGHT CON BIOX-01! ci sfonda, quasi tpk. marius muore. Sasska si agita e ci ha dato un restituito un diamante- Ha degli strumenti nuovi.
+Sylwe da mette il diamante in petto a Marius. Il diamante risucchia l'energia di Sylwe che sviene. 
+Dal cadavere del mostro è uscita un'altra perla. prismatica.
+
+
+SESSIONE 17/11
+
+Marius ci racconta di aver incontrato un'entità, tipo un dio. L'ha aiutato ma ha provato molto dolore per farsi estrarre dei cristalli. Shar Zul.
+Riposiamo.
+Estraiamo denti del BIOX-01, 6. Prendiamo la perla anche. 
+Faccio un esperimento per cercare di capire se nel vuoto c'è aria bruciando un legno lanciato.
+Abbiamo visto solo su pagine di libro, a Quorandis. Era stata scoperta una risorsa molto particolare: un cristallo che proviene da tempi più antichi, Asterite. è una risorsa molto rara, rarissima. Tant'è che viene usata per riprodurre il nucleo delle aereonavi. Nucleo che però differentemente da quelli coperti, consuma l'asterite.
+Mentre il legno cade noi vediamo questa formazione di cristallo gigantesca. Sembrerebbe essere una vera e propria vena. su per giù almeno a 70 metri da noi. Ha continuato a scendere il legno, spegnendo la fiamma ma non ha fatto nessun tonfo.
+Thumn si lancia giù. Resta infilzato da un cristallo, evitando di cadere e facendosi male.
+trasformo coleen in un gufo gigante (Giant Owl) e lo va a prendere.
+La cava in cui siamo è come se fossero vermi di roccia, sono scavate nel niente!
+Coleen riscende in forma gufo gigante giù ma non trova fondo. solo una specie di piazzola dopo.
+Risale, prende Thumn e vanno ad estrarli ma al primo colpo frana tutto. Coleen salva Thumn dalla caduta. poi decidono di scendere a recuperare i cristalli caduti e ne prendono 4. Si interrompe la trasformazione mentre erano quasi arrivati. Trasformo quindi Marius per recuperarli che li salva.
+Mettiamo le pietre nel cerchio e ci teletrasportiamo. Ci troviamo in mezzo ad una foresta, in cui ci sono delle rovine, con parti semi distrutte. Siamo nella foresta di Tiravel. Sentiamo un rumore di acqua abbastanza lontano, quindi siamo vicini alla costa.
+C'è solo un muro che sembra essere intatto, ci sono disegni, scritte, animali e diverse spiegazioni. Sono enormi.
+Parla di estrarre energia vitale ed infonderla in un oggetto (manca qualcosa).
+Sentiamo nell'aria un odore di salsedine e legno lavorato provenire da sud.
