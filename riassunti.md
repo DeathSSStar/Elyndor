@@ -419,7 +419,7 @@ Cristalli presi fino ad ora: verde, viola, azzuro, blu
 
 ---
 
-SESSIONE PERSA
+SESSIONE PERSA (gli amici affrontano il tizio)
 
 ---
 
@@ -457,5 +457,13 @@ Coleen riscende in forma gufo gigante giù ma non trova fondo. solo una specie d
 Risale, prende Thumn e vanno ad estrarli ma al primo colpo frana tutto. Coleen salva Thumn dalla caduta. poi decidono di scendere a recuperare i cristalli caduti e ne prendono 4. Si interrompe la trasformazione mentre erano quasi arrivati. Trasformo quindi Marius per recuperarli che li salva.
 Mettiamo le pietre nel cerchio e ci teletrasportiamo. Ci troviamo in mezzo ad una foresta, in cui ci sono delle rovine, con parti semi distrutte. Siamo nella foresta di Tiravel. Sentiamo un rumore di acqua abbastanza lontano, quindi siamo vicini alla costa.
 C'è solo un muro che sembra essere intatto, ci sono disegni, scritte, animali e diverse spiegazioni. Sono enormi.
-Parla di estrarre energia vitale ed infonderla in un oggetto (manca qualcosa).
+Parla di estrarre energia vitale ed fonderla in un oggetto (manca qualcosa).
 Sentiamo nell'aria un odore di salsedine e legno lavorato provenire da sud.
+
+
+SESSIONE 24/11
+
+Promemoria: in futuro dovremmo mandare uno studioso li.
+Arriviamo ad Oswyck, non ci sono le lucertole. Hanno distrutto una recinzione in acciaio. Thumn va a cercarle con Ah.
+Andiamo da Durgan, il fabbro. Gli mostriamo l'asterite e sviene. Convinco le persone che Coleen ha detto Ferrite. Poi lo conduco sul retro per farlo riprendere e mi assicuro che nessuno abbia capito che abbiamo l'Asterite.
+Ci addormentiamo. Ci risvegliamo. Tutto d'un tratto, ci blocchiamo e cambia tutto intorno a noi. Sentiamo una voce a noi familiare che ci dice "penso vogliate vedere qualcosa di interessante e vediamo la città di Valmyrion, poi il sommo cancelliere, che sta parlando dal balcone del templio. Non riusciamo a capire cosa dice, poco dopo vediamo sotto di lui le legioni dell'esercito di Alderia ad ascoltare ciò che dice. Poi alza le braccia e legioni alzare gli scudi e le lance.  (la voce è di quel coso che hanno affrontato nella grotta quando non c'ero). Il sommo cancelliere sta facendo un discorso per entrare in guerra. 

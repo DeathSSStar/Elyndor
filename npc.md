@@ -11,5 +11,5 @@ Dopo che abbiamo sconfitto il verme enorme arriva con un'armatura da generale. S
 - Roderick Vance ricercato, capo di una banda di banditi. troviamo il suo medaglione nella grotta, vicino alle uova, quindi probabilmente è morto.
 - Zharren mago di Quorandis, amico del capitano Rannik di Quorandis. Ha inviato Sylwe ad aiutarmi.
 - Perrin Ramirossi: mercante che abbiamo picchiato a Myrrendale
-- Durgan proprietario armeria di Oswyck la grande forgia. il figlio del vecchio proprietario che ha interagito con Thumn
+- Durgen proprietario armeria di Oswyck la grande forgia. il figlio del vecchio proprietario che ha interagito con Thumn
 - Edrick Halden funzionario a capo dei minatori, responsabile delle attività estrattive. Io e Coleen gli abbiamo mentito e ci ha sgamato.
